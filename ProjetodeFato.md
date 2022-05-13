@@ -1,1 +1,1 @@
-Projetinho vai ser deseolvolvido aqui
+Projetinho vai ser desenvolvido aqui
